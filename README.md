@@ -1,2 +1,2 @@
-# First-
-Ini adalah repository pertama saya
+Welcome to my Channel
+Willkommen auf meiner Website
